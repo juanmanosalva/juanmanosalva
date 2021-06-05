@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there im Juan Manosalva👋
 - 🔭 I’m currently working on Nothing
 - 🌱 I’m currently learning programing
 - 👯 I’m looking to collaborate on my friends
